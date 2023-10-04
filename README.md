@@ -1,5 +1,5 @@
 
-## **[Introduction](https://www.chatgpt-mail.com)**
+## **https://www.chatgpt-mail.com**
 
 ## **Table of Contents**
 1. Introduction
